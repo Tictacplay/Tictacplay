@@ -8,4 +8,8 @@ meu nome é tactacplay
 
 ### vocé entrar em contato comigo 
 
+tactacplay@gmail.com
 
+@tactacplay
+
+![]([https://media1.tenor.com/m/xd2_RUy41sAAAAAC/cute-cat.gif)
