@@ -6,9 +6,9 @@ meu nome é tactacplay
 -estou me desenvolvendo na linguagem javaScript
 -utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### vocé entrar em contato comigo 
+### vocé entrar em contato comigo 📫
 
-tactacplay@gmail.com
+00001116011463sp@al.educacao.sp.gov.br
 
 @tactacplay
 
